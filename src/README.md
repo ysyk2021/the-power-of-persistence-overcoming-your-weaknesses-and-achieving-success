@@ -8,5 +8,4 @@ Throughout the book, you'll learn how to develop a clear vision, stay motivated,
 
 Whether you're struggling to achieve your goals or simply looking to take your success to the next level, "The Power of Persistence" is an essential resource for anyone seeking to unlock their full potential. So why wait? Start reading today and discover the power of persistence!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
