@@ -1,4 +1,4 @@
-Chapter: Using Persistence for Personal and Professional Development
+Using Persistence for Personal and Professional Development
 ====================================================================
 
 Introduction

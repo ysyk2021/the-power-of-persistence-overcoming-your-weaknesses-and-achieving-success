@@ -1,4 +1,4 @@
-Chapter 7: Techniques for Implementing and Communicating Changes
+Techniques for Implementing and Communicating Changes
 ================================================================
 
 In this chapter, we will explore various techniques that can be employed to effectively implement and communicate changes within an organization. Change is inevitable in any dynamic environment, and possessing the right strategies can help overcome resistance and ensure a smooth transition towards success.

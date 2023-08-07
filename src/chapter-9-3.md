@@ -1,4 +1,4 @@
-Chapter 5: Incorporating Self-Reflection into the Process
+Incorporating Self-Reflection into the Process
 =========================================================
 
 **Introduction**

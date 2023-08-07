@@ -1,4 +1,4 @@
-Chapter 3: Building Resilience and Determination
+Building Resilience and Determination
 ================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter 3: Understanding the Importance of a Growth Mindset in Persistence
+Understanding the Importance of a Growth Mindset in Persistence
 ==========================================================================
 
 Introduction

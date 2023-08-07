@@ -1,4 +1,4 @@
-Chapter: Setting Goals for Personal and Professional Growth Through Persistence
+Setting Goals for Personal and Professional Growth Through Persistence
 ===============================================================================
 
 Introduction

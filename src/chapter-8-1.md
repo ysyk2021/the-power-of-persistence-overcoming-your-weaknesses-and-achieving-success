@@ -1,4 +1,4 @@
-Chapter: The Importance of Implementing and Communicating Changes Resulting from Persistence
+The Importance of Implementing and Communicating Changes Resulting from Persistence
 ============================================================================================
 
 Introduction

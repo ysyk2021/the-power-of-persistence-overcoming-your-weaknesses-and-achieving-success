@@ -1,4 +1,4 @@
-Chapter 5: Building Assertiveness and Negotiation Skills
+Building Assertiveness and Negotiation Skills
 ========================================================
 
 In this chapter, we will explore the importance of building assertiveness and negotiation skills in order to overcome weaknesses and achieve success. Assertiveness and negotiation are valuable tools that can help individuals navigate challenging situations, communicate effectively, and create win-win outcomes. By developing these skills, you can enhance your personal and professional relationships while making significant progress towards your goals.

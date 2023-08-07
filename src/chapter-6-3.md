@@ -1,4 +1,4 @@
-Chapter: Building Mental Toughness and Discipline
+Building Mental Toughness and Discipline
 =================================================
 
 Introduction

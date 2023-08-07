@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 ===================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter 3: Identifying Your Strengths and Weaknesses
+Identifying Your Strengths and Weaknesses
 ====================================================
 
 In order to embark on the journey of overcoming your weaknesses and achieving success, it is essential to begin by identifying your strengths and weaknesses. This self-awareness will serve as a solid foundation upon which you can build your personal growth and development.

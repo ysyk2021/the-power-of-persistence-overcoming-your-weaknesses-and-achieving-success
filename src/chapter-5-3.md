@@ -1,4 +1,4 @@
-Chapter 5: Building Problem-Solving and Decision-Making Skills
+Building Problem-Solving and Decision-Making Skills
 ==============================================================
 
 In this chapter, we will explore the importance of developing strong problem-solving and decision-making skills. These skills are essential in overcoming weaknesses and achieving success in various aspects of life. We will discuss effective strategies and techniques that can be applied to enhance these skills.
