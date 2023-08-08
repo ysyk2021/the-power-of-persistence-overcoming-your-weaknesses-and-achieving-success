@@ -1,8 +1,7 @@
 Building Resilience and Determination
 ================================================
 
-Introduction
-------------
+
 
 In life, we often encounter obstacles and face setbacks that test our limits. The ability to bounce back from these challenges and maintain the determination to achieve success is what sets resilient individuals apart. In this chapter, we will explore the importance of building resilience and determination, and discover strategies to cultivate these qualities within ourselves.
 
