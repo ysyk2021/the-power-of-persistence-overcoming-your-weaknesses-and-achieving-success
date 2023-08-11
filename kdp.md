@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Sure, here are 20 Amazon search keywords related to "The Power of Persistence: Overcoming Your Weaknesses and Achieving Success":
-
 1. Self-improvement
 2. Personal growth
 3. Motivation
