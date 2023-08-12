@@ -33,7 +33,7 @@ Social persistence involves navigating and maintaining relationships, particular
 
 Strategic persistence entails developing and executing long-term plans despite potential setbacks or delays. It involves setting clear objectives, breaking them into smaller achievable goals, and consistently working towards them. Strategic persistence enables individuals to stay committed to their vision and navigate challenges while adapting their strategies as needed.
 
-Conclusion:
+Conclusion
 -----------
 
 Understanding the different types of persistence empowers individuals to identify their strengths and areas for improvement. By cultivating mental, emotional, physical, creative, social, and strategic persistence, individuals can overcome weaknesses and increase their chances of achieving success. Remember, persistence is not about blindly pursuing a goal, but rather about adaptability, resilience, and maintaining focus in the face of obstacles.
