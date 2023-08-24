@@ -1,7 +1,3 @@
-Building Mental Toughness and Discipline
-=================================================
-
-
 
 In order to overcome weaknesses and achieve success, cultivating mental toughness and discipline is crucial. This chapter will explore the importance of these traits and provide practical strategies to build them.
 

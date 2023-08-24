@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Persistence
-======================================================
 
 Developing a growth mindset is essential for effective persistence, as it helps individuals embrace challenges and view failures as opportunities for growth. In this chapter, we will explore the importance of a growth mindset in persistence, techniques for developing a growth mindset, and overcoming obstacles to effective persistence.
 

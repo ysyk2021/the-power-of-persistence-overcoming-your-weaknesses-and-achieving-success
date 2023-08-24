@@ -1,5 +1,3 @@
-Chapter: Conclusion
-===================
 
 The ongoing journey of effective persistence
 --------------------------------------------

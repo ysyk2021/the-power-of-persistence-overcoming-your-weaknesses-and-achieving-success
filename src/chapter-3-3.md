@@ -1,5 +1,3 @@
-Overcoming Obstacles to Effective Persistence
-========================================================
 
 Persistence is a key ingredient in achieving success, but it is not always an easy path. Along the journey, we are bound to encounter obstacles that test our determination and make us question our abilities. In this chapter, we will explore some common obstacles to effective persistence and strategies to overcome them.
 

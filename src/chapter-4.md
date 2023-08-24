@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Self-awareness is a crucial aspect of persistence, as it helps individuals identify their strengths and weaknesses, build resilience, and maintain motivation. In this chapter, we will explore techniques for building self-awareness in relation to persistence, identifying strengths and weaknesses, and building resilience and determination.
 

@@ -1,5 +1,3 @@
-Chapter 7: Implementing and Communicating Changes
-=================================================
 
 Persistence is the key to overcoming weaknesses and achieving success. However, implementing and communicating changes resulting from persistence can be challenging. In this chapter, we will explore the importance of implementing and communicating changes, techniques for doing so effectively, and building assertiveness and negotiation skills.
 

@@ -1,5 +1,3 @@
-Chapter 4: Navigating Obstacles and Setbacks
-============================================
 
 Persistence requires navigating obstacles and setbacks in order to achieve success. In this chapter, we will explore the importance of navigating obstacles and setbacks, techniques for overcoming them, and building problem-solving and decision-making skills.
 

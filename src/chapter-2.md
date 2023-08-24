@@ -1,5 +1,3 @@
-Chapter 1: Understanding Persistence
-====================================
 
 Persistence is the ability to persist in a course of action despite obstacles, setbacks, or distractions. In this chapter, we will explore what persistence is, the types of persistence, and the benefits of effective persistence.
 

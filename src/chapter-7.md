@@ -1,5 +1,3 @@
-Chapter 6: Balancing Patience and Urgency
-=========================================
 
 Balancing patience and urgency is an essential component of effective persistence. In this chapter, we will explore the role of balancing these two qualities in achieving long-term goals and techniques for finding the right balance.
 
